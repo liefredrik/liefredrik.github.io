@@ -19,4 +19,4 @@ While the RedZen App does not collect personal data, we prioritize user security
 We may update our Privacy Policy periodically.
 
 ## Contact Us
-For any questions or suggestions, contact us at [your-email@email.com].
+For any questions or suggestions, contact us at [lie.fredrik@gmail.com].
